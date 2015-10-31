@@ -1,0 +1,1 @@
+Your account in Didaoyingyu's flash card game is already approved. You can login now.
